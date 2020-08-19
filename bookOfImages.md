@@ -6,7 +6,6 @@
 ![AIDJJV2-StoryAuthorEngine-](https://github.com/StoryAuthor/California/blob/master/32805053304_3ee7d9e075_z.jpg)
 ![AIDJJV2-StoryAuthorEngine-](https://github.com/StoryAuthor/California/blob/master/560b1a9696e2c.image.jpg)
 ![AIDJJV2-StoryAuthorEngine-](https://github.com/StoryAuthor/California/blob/master/5b81ed7742282.image.jpg)
-![AIDJJV2-StoryAuthorEngine-](https://github.com/StoryAuthor/California/blob/master/Alaskan_Pike_NS.jpg)
 ![AIDJJV2-StoryAuthorEngine-](https://github.com/StoryAuthor/California/blob/master/Alaskan_University_NS.jpg)
 ![AIDJJV2-StoryAuthorEngine-](https://github.com/StoryAuthor/California/blob/master/CaliforniaCapitolSacramentoCA.jpg)
 ![AIDJJV2-StoryAuthorEngine-](https://github.com/StoryAuthor/California/blob/master/California-Traffic-Light-Laws-730x430.jpg)
