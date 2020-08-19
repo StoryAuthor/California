@@ -2,7 +2,6 @@
 ![AIDJJV2-StoryAuthorEngine-](https://github.com/StoryAuthor/California/blob/master/099vc02969.jpg)
 ![AIDJJV2-StoryAuthorEngine-](https://github.com/StoryAuthor/California/blob/master/1024px-Red-light-camera-springfield-ohio.jpg)
 ![AIDJJV2-StoryAuthorEngine-](https://github.com/StoryAuthor/California/blob/master/1562010225095.jpeg)
-![AIDJJV2-StoryAuthorEngine-](https://github.com/StoryAuthor/California/blob/master/2_Pike_EW.jpg)
 ![AIDJJV2-StoryAuthorEngine-](https://github.com/StoryAuthor/California/blob/master/243321_kgo-red-light-camera-millbrea-img.jpg)
 ![AIDJJV2-StoryAuthorEngine-](https://github.com/StoryAuthor/California/blob/master/32805053304_3ee7d9e075_z.jpg)
 ![AIDJJV2-StoryAuthorEngine-](https://github.com/StoryAuthor/California/blob/master/560b1a9696e2c.image.jpg)
